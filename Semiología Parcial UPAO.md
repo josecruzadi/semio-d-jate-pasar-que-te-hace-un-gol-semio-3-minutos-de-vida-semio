@@ -1,0 +1,1 @@
+# Semiología Parcial
